@@ -1,4 +1,5 @@
-### Hi there 👋
+### Hi there,
+I'm a budding new story-teller on the network. I am the SpellChemist!  I offer stories to those that want them and words for those that might fund me.  I'm interested in promoting Permaculture Principles of People Care, Earth Care and Fair Share. Let me start by offering my promo children's audiobook Perfect Panda. Message me for the full file, free snippet attached!  Stay in touch for further stories and recordings...
 
 <!--
 **spellchemist/spellchemist** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
